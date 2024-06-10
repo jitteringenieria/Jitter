@@ -1,4 +1,4 @@
-# 🤖 [@lgzarturo](https://twitter.com/lgzarturo)
+# 🤖 [@jitteringenieria]([https://twitter.com/lgzarturo](https://www.instagram.com/jitteringenieria/))
 
 ![Arturo López - Programador Web](https://raw.githubusercontent.com/lgzarturo/lgzarturo/master/assets/github-header.jpg)
 
